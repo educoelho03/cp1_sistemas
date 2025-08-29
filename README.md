@@ -1,1 +1,0 @@
-Checkpoint 1 5ECR - Eduardo Paiva Coelho - RM 89235
